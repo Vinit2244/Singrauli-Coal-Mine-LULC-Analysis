@@ -1,0 +1,1 @@
+# Singrauli-Coal-Mine-LULC-Analysis
